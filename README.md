@@ -1,6 +1,6 @@
 .- 👋 Hi, I’m @MauroVaz07
 - 👀 I’m interested in  aprender 
-- 🌱 I’m currently learning  a programar
+- 🌱 estou atualizando meus conhecimentos cada dia mais
 - 💞️ I’m looking to collaborate on ..
 - 📫 How to reach me ...
 
